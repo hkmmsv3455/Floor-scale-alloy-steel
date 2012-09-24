@@ -1,0 +1,4 @@
+Floor-scale-alloy-steel
+=======================
+
+thickness of steel: standard 5cmStainless steel junction boxPlastic Spray painted, more resistant!Model  CapacitySize in inches(WxLxH)Ship Weight FSP-500kg / 1,000 lb3’* 3’* 3.580kg / 176 lbFSP-500kg / 1,000 lb4’* 4’* 3.5110kg / 243 lbFSP-1,000kg / 2,000 lb3’* 3’* 3.580kg / 176 lbFSP-1,000kg / 2,000 lb4’* 4’* 3.5110kg / 243 lbFSP-2,500kg / 5,000 lb4’* 4’* 3.5110kg / 243 lbFSP-2,500kg / 5,000 lb4’* 6’* 3.5145kg / 320 lbFSP-2,500kg / 5,000 lb5’* 5’* 3.5150kg / 331 lbFSP-2,500kg / 5,000 lb5’* 7’* 3.5205kg / 452 lbFSP-5,000kg / 10,000 lb4’* 4’* 3.5110kg / 243 lbFSP-5,000kg / 10,000 lb4’* 6’* 3.5145kg / 320 lbFSP-5,000kg / 10,000 lb5’* 5’* 3.5150kg / 331 lbFSP-5,000kg / 10,000 lb5’* 7’* 3.5205kg / 452 lb http://www.hzloadcell.com/pid11501384/Floor+scale-alloy+steel.htm
